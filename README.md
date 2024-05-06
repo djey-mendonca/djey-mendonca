@@ -2,7 +2,7 @@
 - 👀 I’m interested in cosmetics, skincare, fashion & music. 
 - 🌱 I’m currently learning things about journalism, public relations and baking bread.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me via Instagram. 
+- 📫 How to reach me ...
 - 😄 Pronouns: she / her
 - ⚡ Fun fact: I love candies.
 
